@@ -1,1 +1,1 @@
-
+buraya yeni şeyler yazdım.
